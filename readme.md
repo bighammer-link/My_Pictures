@@ -1,1 +1,1 @@
-my pictures 
+my picgo 
